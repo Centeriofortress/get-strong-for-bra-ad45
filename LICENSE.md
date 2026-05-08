@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Centeriofortress.github.io/get-strong-for-bra-ad45/ ) |
  |---------------------|----------------------:|
 
 
